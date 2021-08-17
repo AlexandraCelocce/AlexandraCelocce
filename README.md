@@ -1,6 +1,6 @@
 # Olá! Me chamo Alexandra Celocce (Ela/Dela)
 
-#### Uma jovem estudante em constante desenvolvimento, aficionado por resolver problemas através da tecnologia.
+#### Não deixe o mar te engolir.
   
  <br>
   

@@ -6,7 +6,7 @@
   
 - 📍 São Paulo - SP
 - 💻 Dev Fullstack Jr.
-- 👨‍🎓 Aluna da Generation Brasil
+- 👨‍🎓 Formada pela Generation Brasil
 - 🖥️ Multimídia
 - 🎬 Produção Audiovisual
 - 🖌️ Artista afro-brasileira 2014
